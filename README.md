@@ -5,3 +5,4 @@ And cheese
 Mieczysławek śpi
 Mieczysławek śpi dlugo
 Mieczysławek zjadł chrupki
+To było oszustwo - on dalej śpi
