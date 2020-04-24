@@ -13,4 +13,6 @@ Mieczysławek zjadł chrupki
 
 To było oszustwo - on dalej śpi
 
-Jest zasranym leniem 
+Jest zasranym leniem
+
+Loki jest ładniejszy 
