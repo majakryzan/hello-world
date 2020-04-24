@@ -14,3 +14,5 @@ Mieczysławek zjadł chrupki
 To było oszustwo - on dalej śpi
 
 Jest zasranym leniem 
+
+Dopisuję zatem, bo chciałeś
